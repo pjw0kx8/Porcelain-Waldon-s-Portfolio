@@ -6,12 +6,20 @@ I am Porcelain Waldon, a highly motivated and results-driven individual. I am in
 # Certifications
 Google Cyber Security Professional Certifications in progress!
 # Professional Experience
- [ insert later ]
+Team Lead - Josephine Market
+
+Team Lead / Manager - Smoothie King
+
+Head Cashier - The Home Depot
+
+Pro Associate - The Home Depot
+
+Appliance Specialist - The Home Depot
  # Education
  Highschool Diploma at W.H. Ford Highschool
  # Resume
  [ insert later ]
  # Seeking Opportunities
- [ insert later ]
+ I am looking to further my career and join the world of Cyber Security. 
  # Connect with me
  Feel free to reach out to me via email at wouldyouliketopurchaseafrog@gmail.com or connect with me on LinkedIn for further discussion and collaboration opportunities. Let's innovate and secure the future together! Follow my career journey here as I continue to grow. :)
