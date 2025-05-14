@@ -5,6 +5,8 @@ Welcome to my GitHub portfolio! Here you'll discover a showcase of my career dev
 I am Porcelain Waldon, a highly motivated and results-driven individual. I am in the process of getting my Cyber Security certification while committed to my full-time job. I am constantly exploring new challenges and seeking opportunities to expand my knowledge and expertise.
 # Certifications
 Google Cyber Security Professional Certifications in progress!
+https://coursera.org/share/71cb8e3dfc95a57462ecf3ebae4518f1
+https://coursera.org/share/4decd10cfc42f1a71dd2d70509135574
 # Professional Experience
 Team Lead - Josephine Market
 
