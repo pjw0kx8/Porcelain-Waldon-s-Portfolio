@@ -7,6 +7,7 @@ I am Porcelain Waldon, a highly motivated and results-driven individual. I am in
 Google Cyber Security Professional Certifications in progress!
 https://coursera.org/share/71cb8e3dfc95a57462ecf3ebae4518f1
 https://coursera.org/share/4decd10cfc42f1a71dd2d70509135574
+https://coursera.org/share/3cf524966de08ae5176fd46544b6c1db
 # Professional Experience
 Team Lead - Josephine Market
 
